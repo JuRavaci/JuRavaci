@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JuRavaci 
+- 👀 I’m interested in I'm interested in programming and learning new languages.
+- 🌱 I’m currently learning ... German, English and Spanish
